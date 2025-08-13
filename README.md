@@ -12,5 +12,11 @@ Queremos que todos possam ter acesso de forma simples e gratuita
 
 
 ## 🎨 Inspirações & Ideias
-Estamos organizando todas as ideias e referências no **Miro**:  
+Estamos organizando todas as ideias e referências
+
+**Miro**:  
 [🔗 Acessar o quadro no Miro](https://miro.com/app/board/uXjVJU8oyOY=/?share_link_id=673809546142)  
+
+
+**Pinterest - Logo**:  
+[🔗 Acessar quadro de ideias Pinterest](https://pin.it/2lZxdk9r2)  
