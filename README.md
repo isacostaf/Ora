@@ -20,3 +20,7 @@ Estamos organizando todas as ideias e referências
 
 **Pinterest - Logo**:  
 [🔗 Acessar quadro de ideias Pinterest](https://pin.it/2lZxdk9r2)  
+
+**Canva - Logo**:  
+[🔗 Acessar esboços de Logo Canva](https://www.canva.com/design/DAGwFlJ5zSA/vhBzIb5SxYYEFuUl1k11lQ/edit?utm_content=DAGwFlJ5zSA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)  
+
